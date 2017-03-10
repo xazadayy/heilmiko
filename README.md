@@ -1,2 +1,2 @@
 # heilmiko
-Plez No Mour DMCA
+Plez No Mour CopyLeft
